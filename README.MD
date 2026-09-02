@@ -1,3 +1,3 @@
-$${\color{pink}Are\ you\ okay\  ?\ $$
+$${\color{pink}Are\ you\ okay\  ?\$$
 
 
