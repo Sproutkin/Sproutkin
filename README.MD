@@ -1,3 +1,3 @@
-$${\color{pink}This\ space\ text\  is\  pink}$$
+$${\color{pink}Are\ you\ okay\  ?\  pink}$$
 
 
