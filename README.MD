@@ -1,3 +1,3 @@
-$${\color{pink}Fandoms\ :\ Dw\  Homestuck\  etc }$$
+$${\color{pink}Fandoms\ :\ Dw\ ,\  Homestuck\ ,\  etc }$$
 
 
