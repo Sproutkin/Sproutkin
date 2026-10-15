@@ -1,1 +1,1 @@
-$${\color{cream}Drew\ or\ Andrew\  !\ cream}$$
+$${\color{cream}Drew\ or\ Andrew\  !\ }$$
