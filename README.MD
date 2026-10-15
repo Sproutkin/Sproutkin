@@ -1,3 +1,3 @@
-$${\color{pink}Are\ you\ okay\  ?\ pink}$$
+$${\color{pink}Fandoms\ :\ Dw\  Homestuck\  etc }$$
 
 
